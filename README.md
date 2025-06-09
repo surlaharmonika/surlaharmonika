@@ -4,7 +4,7 @@ Zdravo 👋
 
 Dobrodošli pri Šurla Harmonikah
 
-Ročno izdelane harmonike s srcem, ki zazvenijo v vsakem tonu
+Ročno izdelane harmonike s srcem, ki zazvenijo v vsakem tonu.
 Pri nas  verjamemo, da je harmonika več kot le instrument — je glasba, strast in tradicija, ujeta v vsakem detajlu. Vsaka Šurla harmonika je ročno izdelana v Sloveniji z veliko mero predanosti, znanja in ljubezni do slovenske glasbe.
 
 Naša zgodba

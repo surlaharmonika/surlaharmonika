@@ -9,7 +9,7 @@ Pri nas  verjamemo, da je harmonika več kot le instrument — je glasba, strast
 
 Naša zgodba
 
-Naša delavnica združuje dolgoletno raziskovanje ročne izdelave in spoštovanje do slovenske glasbene tradicije. Vsak instrument izdelamo natančno, skrbno in z mislijo na individualne potrebe glasbenika. Šurla harmonike so unikatni kosi, ki združujejo izključno kakovostne materiale, bogat in topel zvok ter estetsko dovršenost.
+Naša delavnica združuje dolgoletno raziskovanje ročne izdelave harmonik in spoštovanje do slovenske glasbene tradicije. Vsak instrument izdelamo natančno, skrbno in z mislijo na individualne potrebe glasbenika. Šurla harmonike so unikatni kosi, ki združujejo izključno kakovostne materiale, bogat in topel zvok ter estetsko dovršenost.
 
 Kaj ponujamo
 
@@ -26,12 +26,19 @@ Zakaj izbrati Šurla Harmonike?
 •	Unikatni instrumenti – vsak kos je nekaj posebnega
 •	Topel, poln in uravnotežen zvok
 •	Osebni pristop – prilagoditev po željah glasbenika
-Strokoven servis, vzdrževanje in popravila vseh zamk diatoničnih harmonik
+• Strokoven in zanesljiv servis, vzdrževanje ter popravila vseh zamk diatoničnih harmonik
 
 🔨 Ročna izdelava
 🌲 Kakovostni materiali
 🎼 Topel, poln zvok
-🇸🇮 Slovenska obrt z značajem
+SI Slovenska obrt z značajem
 ❤️ Narejena s srcem – za tiste, ki znajo prisluhniti tako sebi kot instrumentu
 
-Odkrij čarobnost glasbe z ročno izdelanimi Šurla harmonikami – tvoj glasbeni sopotnik z dušo!
+Stopite v stik z nami
+
+Želite izvedeti več ali naročiti svojo Šurla harmoniko? Kontaktirajte nas!
+
+Email: lado.surla@gmail.com
+Telefon: 051-677-267
+
+Odkrij čarobnost glasbe z ročno izdelanimi ŠURLA harmonikami – tvoj glasbeni sopotnik z dušo!

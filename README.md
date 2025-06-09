@@ -26,7 +26,7 @@ Zakaj izbrati Šurla Harmonike?
 •	Unikatni instrumenti – vsak kos je nekaj posebnega
 •	Topel, poln in uravnotežen zvok
 •	Osebni pristop – prilagoditev po željah glasbenika
-Strokoven servis harmonik – vzdrževanje in popravila za vse znamk diatoničnih harmonik
+Strokoven servis, vzdrževanje in popravila vseh zamk diatoničnih harmonik
 
 🔨 Ročna izdelava
 🌲 Kakovostni materiali

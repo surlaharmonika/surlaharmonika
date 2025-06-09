@@ -13,8 +13,8 @@ Naša delavnica združuje dolgoletno raziskovanje ročne izdelave in spoštovanj
 
 Kaj ponujamo
 
-Ročna izdelava harmonik.
-Vsaka harmonika je izdelana ročno, s srcem in z največjo pozornostjo do detajlov. Pri izbiri materialov ne sklepamo kompromisov, saj želimo, da vsak instrument s svojim zvokom in videzom navduši glasbenika.
+Ročna izdelava unikatnih harmonik.
+Vsaka harmonika je izdelana ročno, s srcem in z največjo pozornostjo do detajlov. Pri izbiri materialov ne sklepamo kompromisov, saj želimo, da vsak instrument s svojim zvokom, kvaliteto  in videzom navduši glasbenika.
 
 Servis diatoničnih harmonik vseh znamk
 
